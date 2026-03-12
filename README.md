@@ -27,5 +27,5 @@ Treasurer — ACM Wentworth Chapter
 
 ## Links
 
-LinkedIn: https://www.linkedin.com/in/joseph-guerrera-b61365389/  
+LinkedIn: https://www.linkedin.com/in/joseph-guerrera-wit
 GitHub: https://github.com/guerrera26
